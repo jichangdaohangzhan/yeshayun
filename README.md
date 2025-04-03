@@ -12,7 +12,11 @@
 
 **访问官网**：点击下方链接进入
 
-[ **夜煞云机场官方地址入口**](https://vip.loveyesha.com/index.php#/register?code=FxBTSKjj)
+[ **夜煞云机场官方地址入口1**](https://vip.loveyesha.com/index.php#/register?code=FxBTSKjj)
+
+[ **夜煞云机场官方地址入口2**](https://1.yeshayun.com/index.php#/register?code=FxBTSKjj)
+
+[ **夜煞云机场官方地址入口3**](https://m.yesha.pro/index.php#/register?code=FxBTSKjj)
 
 **点击注册**：在主页右上角找到并点击“注册”按钮。
 
